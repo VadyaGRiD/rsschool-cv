@@ -1,1 +1,1 @@
-# rsschool-cv
+https://VadyaGRiD.github.io/rsschool-cv/cv
