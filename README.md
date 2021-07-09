@@ -1,1 +1,0 @@
-https://VadyaGRiD.github.io/rsschool-cv/cv
